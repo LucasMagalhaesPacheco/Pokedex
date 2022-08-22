@@ -65,6 +65,8 @@ _Responsividade_
 
 ![Screenshot_4](https://user-images.githubusercontent.com/104689597/185631137-1038fa12-3034-4783-b6be-830b7fa2d753.png)
 
+![image](https://user-images.githubusercontent.com/104689597/186024701-7cbe50a8-b447-48e9-9cf8-f3342e6cf2d9.png)
+
 ![Screenshot_5](https://user-images.githubusercontent.com/104689597/185631185-000b60fd-2920-43a8-a0af-121542a915e7.png)
 
 ![Screenshot_6](https://user-images.githubusercontent.com/104689597/185631221-ec0e582e-4d8a-4d67-97ce-362778fab8ff.png)
